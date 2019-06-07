@@ -15,3 +15,9 @@ That could mean…
 - Creating a level playing field for all
 - Protecting people’s privacy
 - …Or maintaining the status quo
+
+I am able to develop and grow myself.
+
+- I have the time available to me to learn new skills
+- I am in an environment that understands that I work in a field that requires constant growth
+- I am able to apply newly learnt concepts and tools in my work
