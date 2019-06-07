@@ -16,6 +16,11 @@ I work with people I want to work with.
 - From those around me, I receive as much support as I need
 - I can communicate effectively with those I work with
 
+I am able to bring myself to work.
+
+- I bring as much of myself to my work as I want. Whether that’s wanting to share my whole self or keeping myself to myself.
+- The amount of time I spending working supports my life as a whole. Whether that’s the ability to maximise time with friends and family or dedicating myself to my career.
+
 ## As a person in the technology industry, with a more specific focus:
 
 I am proud of the work I do and I can go home with my head held high.
