@@ -10,6 +10,12 @@ I am treated as important.
 - People interact with me with respect
 - I understand how I contribute to the bigger picture
 
+I work with people I want to work with.
+
+- People I work with enhance who I am as a professional
+- From those around me, I receive as much support as I need
+- I can communicate effectively with those I work with
+
 ## As a person in the technology industry, with a more specific focus:
 
 I am proud of the work I do and I can go home with my head held high.
