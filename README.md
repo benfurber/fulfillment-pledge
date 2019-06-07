@@ -8,6 +8,12 @@ Work is a big proportion of our lives. I plan to be proactive seeking out and wo
 
 ## As a person in the technology industry, with a more specific focus:
 
+I am proud of the work I do and I can go home with my head held high.
+
+- I know technology can help solve the stated problem
+- I know I’ve crafted the best code or I’m helping get to market fast
+- There is a visible and understandable loop between my work, users and the organisation.
+
 In a big or small way, I work to support the world I want to see.<br/>
 That could mean…
 
